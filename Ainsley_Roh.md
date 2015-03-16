@@ -1,0 +1,3 @@
+Hi Ainsley, 
+
+If you're reading this, well, since I told you where this was anyway, you know what happened. If you gave everyone their file, thanks. If not, I can understand why not. However, I want you to know that you have been a great person in my life, and I don't mean the awkward time from 4th grade to 8th grade when we didnt even know each other. You inspired me to do good things, and I am happy to say I did. 
